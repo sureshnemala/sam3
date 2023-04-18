@@ -1,1 +1,1 @@
-[A[A[A[B[B[Bhow are you
+how are you
